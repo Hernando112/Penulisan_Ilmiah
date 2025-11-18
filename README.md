@@ -1,2 +1,2 @@
 Penulisan Ilmiah (PI)
-Penulisan Ilmiah sebagai syarat Skripsi
+Penulisan Ilmiah ini sebagai syarat Skripsi
